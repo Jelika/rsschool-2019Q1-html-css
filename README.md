@@ -1,1 +1,1 @@
-# rsschool-2019Q1-codeacademy
+https://www.codecademy.com/users/Anzhelika_000/achievements
